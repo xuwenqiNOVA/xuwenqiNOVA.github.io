@@ -1,2 +1,2 @@
-## Jingyi Ni
-
+# Jingyi Ni
+## Education
